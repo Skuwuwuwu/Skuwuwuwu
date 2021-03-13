@@ -2,7 +2,7 @@
 - 👀 I’m interested in your ✨ m o m ✨ 
 - 🐄 I’m currently learning ✨ l i f e ✨
 - 🧸 I’m looking to collaborate on ✨ l i f e ✨
-- 📫 How to reach me Ochaco#5063
+- 😗Im currently dating your ✨ d a d ✨
  
 
 <!---
